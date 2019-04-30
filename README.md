@@ -1,1 +1,1 @@
-# The-Anthem-to-the-new-world
+# Anthem-to-the-new-world
